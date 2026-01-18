@@ -2,4 +2,4 @@
 Nhóm gồm 3 thành viên:
 23521452 - Nguyễn Phú Thành
 23521706 - Cù Nguyễn Huy Thái Tuấn
-2352xxxx - Lê Bá Quốc
+23521303 - Lê Bá Quốc
